@@ -1,2 +1,2 @@
 # TREX-GAME
-You jump and die.
+you jump and if you toch something you DIEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE.
